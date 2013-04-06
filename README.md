@@ -13,4 +13,4 @@
 
 [MHClansite.blogspot.com](http://mhclansite.blogspot.com/)
 
-[2BReality2.com](htt//2BReality2.com)
+[2BReality2.com](http://2BReality2.com)
