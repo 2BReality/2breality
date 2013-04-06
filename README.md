@@ -18,7 +18,7 @@
 [New England Pic.com](http://newenglandpic.com) 
 
 <button type="button" onclick="JavaScript:alert('NEw England Pic 2BReality.com')">
-<img src="/pix/web_graphics/free_website_graphics/icons/books/book13.gif" alt="Read book" />
+<img src="/pix/web_graphics/free_website_graphics/icons/books/book13.gif" alt="New England Pic" />
 <br />2BReality2!</button>
 
 
