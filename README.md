@@ -10,3 +10,5 @@
 [Reflection of ones self](https://www.backprint.com/view_user_photo.asp?PID=bp%1D%7FFs&EVENTID=85397&PWD=0&ID=119291179)
 
 [2BReality.blogspot.com](http://2breality.blogspot.com/)
+
+[MHClansite.blogspot.com] http://mhclansite.blogspot.com/
