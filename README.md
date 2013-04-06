@@ -1,16 +1,7 @@
-<script type="text/javascript">
-<!--
-function redirect() {
-  window.location = "http://www.google.com/"
-  
-  }
-  //-->
-  </script>
-
 2breality
 =========
 
-2breality
+2breality  <button type="button">Click Me!</button>  
 
 [2BReality.com](http://2breality.com/) is being created to provide a way for anyone to make their thoughts, dreams, desires and ambitions a reality. By providing a window to the world for which they can post comments, statements, pictures, videos, links, etc. So that one day it will be reality.
 
@@ -24,6 +15,6 @@ function redirect() {
 
 [2BReality2.com](http://2BReality2.com)
 
-[New England Pic.com](http://newenglandpic.com) 
+[New England Pic.com](http://newenglandpic.com)  
 
-<input type="button" onclick="redirect()" value="Redirect">
+
