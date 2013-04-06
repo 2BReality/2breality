@@ -17,7 +17,7 @@
 
 [New England Pic.com](http://newenglandpic.com) 
 
-<button type="button" onclick="JavaScript:alert('Once upon a time, there lived a princess and a frog. They both got married and lived happily ever after. The end.')">
+<button type="button" onclick="JavaScript:alert('NEw England Pic 2BReality.com')">
 <img src="/pix/web_graphics/free_website_graphics/icons/books/book13.gif" alt="Read book" />
 <br />Read Book!</button>
 
