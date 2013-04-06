@@ -7,6 +7,6 @@
 
 ![Bunker Hill 2BReality by New England Pic](https://lh5.googleusercontent.com/-bnjEegp_2KY/UVbP0IWjtcI/AAAAAAAAt38/kFxs0z_WptQ/s540/_DSC6915.JPG)
 
-(https://www.backprint.com/view_user_photo.asp?PID=bp%1D%7FFs&EVENTID=85397&PWD=0&ID=119291179)
+[Reflection of ones self](https://www.backprint.com/view_user_photo.asp?PID=bp%1D%7FFs&EVENTID=85397&PWD=0&ID=119291179)
 
-(http://2breality.blogspot.com/)
+[2BReality.blogspot.com](http://2breality.blogspot.com/)
