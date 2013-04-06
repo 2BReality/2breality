@@ -1,8 +1,6 @@
 2breality
 =========
 
-<input type="button" value="Really&#x00A;Tall&#x00A; Button">
-
 2breality
 
 [2BReality.com](http://2breality.com/) is being created to provide a way for anyone to make their thoughts, dreams, desires and ambitions a reality. By providing a window to the world for which they can post comments, statements, pictures, videos, links, etc. So that one day it will be reality.
@@ -18,5 +16,9 @@
 [2BReality2.com](http://2BReality2.com)
 
 [New England Pic.com](http://newenglandpic.com) 
+
+<button type="button" onclick="JavaScript:alert('Once upon a time, there lived a princess and a frog. They both got married and lived happily ever after. The end.')">
+<img src="/pix/web_graphics/free_website_graphics/icons/books/book13.gif" alt="Read book" />
+<br />Read Book!</button>
 
 
