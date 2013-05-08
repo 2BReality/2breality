@@ -7,7 +7,7 @@
 
 ![Bunker Hill 2BReality by New England Pic.com](https://lh5.googleusercontent.com/-bnjEegp_2KY/UVbP0IWjtcI/AAAAAAAAt38/kFxs0z_WptQ/s540/_DSC6915.JPG)
 
-<object width="420" height="315"><param name="movie" value="http://www.youtube.com/v/DtWOyKqlo10?hl=en_US&amp;version=3"></param><param name="allowFullScreen" value="true"></param><param name="allowscriptaccess" value="always"></param><embed src="http://www.youtube.com/v/DtWOyKqlo10?hl=en_US&amp;version=3" type="application/x-shockwave-flash" width="420" height="315" allowscriptaccess="always" allowfullscreen="true"></embed></object>
+
 
 [Reflection of ones self](https://www.backprint.com/view_user_photo.asp?PID=bp%1D%7FFs&EVENTID=85397&PWD=0&ID=119291179)
 
