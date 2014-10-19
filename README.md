@@ -9,7 +9,7 @@
 
 [2BReality] http://www.2breality.com
 
-[Reflection of ones self](https://www.backprint.com/view_user_photo.asp?PID=bp%1D%7FFs&EVENTID=85397&PWD=0&ID=119291179)
+[Reflection of ones self](https://www.dropbox.com/s/64pj8qxt4hhufn1/Relfection%20of%20one%20self.JPG?dl=0)
 
 [2BReality.blogspot.com](http://2breality.blogspot.com/)
 
