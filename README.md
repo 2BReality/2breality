@@ -11,8 +11,6 @@
 
 [Reflection of ones self](https://www.dropbox.com/s/64pj8qxt4hhufn1/Relfection%20of%20one%20self.JPG?dl=0)
 
-[2BReality.blogspot.com](http://2breality.blogspot.com/)
-
 [MHClansite.blogspot.com](http://mhclansite.blogspot.com/)
 
 [2BReality2.com](http://2BReality2.com)
