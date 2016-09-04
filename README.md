@@ -15,6 +15,8 @@
 
 [2BReality2.com](http://2BReality2.com)
 
+[2BRNews](http://www.2breality.com/2brnews.html)
+
  
 
 
