@@ -1,7 +1,7 @@
 2BReality
 =========
 
-Yeah the winner of 911 2016, the DNC: [](https://www.google.com/search?hl=en&gl=us&tbm=nws&authuser=0&q=11+september+2016&oq=11+september+2016&gs_l=news-cc.1.0.43j43i53.94715.109886.0.112874.21.5.2.14.14.0.141.647.0j5.5.0...0.0...1ac.1.UuAu4iqHBzE#q=11+september+2016&newwindow=1&hl=en&gl=us&authuser=0)
+Yeah the winner of 911 2016, the DNC: [Hillary Clinton](https://www.google.com/search?hl=en&gl=us&tbm=nws&authuser=0&q=11+september+2016&oq=11+september+2016&gs_l=news-cc.1.0.43j43i53.94715.109886.0.112874.21.5.2.14.14.0.141.647.0j5.5.0...0.0...1ac.1.UuAu4iqHBzE#q=11+september+2016&newwindow=1&hl=en&gl=us&authuser=0)
 Shall we drink Prune Juice or eat Pizza: The world need to decide: [@2BReality](https://twitter.com/2BReality) LoL
 2BReality   Can We All Have Fun 2BRDay; http://www.2breality.com/2breality20160911.html 1609111524?
 11 September 2016: [http://www.2breality.com/2breality20160911.html](2breality20160911)
