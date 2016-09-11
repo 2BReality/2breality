@@ -3,7 +3,7 @@
 
 2breality   
 
-[2BReality.com](http://2breality.com) is being created to provide a way for anyone to make their thoughts, dreams, desires and ambitions a reality. By providing a window to the world for which they can post comments, statements, pictures, videos, links, etc. So that one day it will be reality. [Test-1](https://github.com/blog/2245-are-you-new-around-here-introducing-an-on-demand-course-in-github-basics) & [Test-2](https://www.gitbook.com)
+[2BReality.com](http://2breality.com) is being created to provide a way for anyone to make their thoughts, dreams, desires and ambitions a reality. By providing a window to the world for which they can post comments, statements, pictures, videos, links, etc. So that one day it will be reality. [Test-1](https://github.com/blog/2245-are-you-new-around-here-introducing-an-on-demand-course-in-github-basics) & [Test-2](https://www.gitbook.com) & [Test-3](https://gist.github.com/) & [Test-4](https://github.com/)
 
 ![Bunker Hill 2BReality by New England Pic.com](https://lh5.googleusercontent.com/-bnjEegp_2KY/UVbP0IWjtcI/AAAAAAAAt38/kFxs0z_WptQ/s540/_DSC6915.JPG)
 
