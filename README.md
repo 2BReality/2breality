@@ -1,7 +1,7 @@
-2breality
+2BReality
 =========
 
-2breality   
+2BReality   
 11 September 2016: http://www.2breality.com/2breality20160911.html
 [@2BReality/your-suppose-to-bring-the-subject-up-front, well here it is](https://medium.com/@2BReality/your-suppose-to-bring-the-subject-up-front-26bd033f3c37#.uxck03dwp)
 
