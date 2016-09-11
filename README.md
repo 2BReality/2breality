@@ -1,8 +1,8 @@
 2BReality
 =========
 
-2BReality   
-11 September 2016: http://www.2breality.com/2breality20160911.html
+2BReality   Can We All Have Fun 2BRDay; http://www.2breality.com/2breality20160911.html 1609111524?
+11 September 2016: [http://www.2breality.com/2breality20160911.html](2breality20160911)
 [@2BReality/your-suppose-to-bring-the-subject-up-front, well here it is](https://medium.com/@2BReality/your-suppose-to-bring-the-subject-up-front-26bd033f3c37#.uxck03dwp)
 
 [2BReality.com](http://2breality.com) is being created to provide a way for anyone to make their thoughts, dreams, desires and ambitions a reality. By providing a window to the world for which they can post comments, statements, pictures, videos, links, etc. So that one day it will be reality. [Test-1](https://github.com/blog/2245-are-you-new-around-here-introducing-an-on-demand-course-in-github-basics) & [Test-2](https://www.gitbook.com) & [Test-3](https://gist.github.com/) & [Test-4](https://github.com/) & [Test-5](https://www.mediawiki.org/wiki/MediaWiki) & [20160911](https://en.wikinews.org/wiki/User_talk:2BReality) & [Wikinews:Newsroom](https://en.wikinews.org/wiki/Wikinews:Newsroom)
