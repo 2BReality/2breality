@@ -2,7 +2,7 @@
 =========
 Does this Make Reality 2 Day? 
 
-[2Day is Sunday; Love the World 1 Day A Week.](https://twitter.com/2BReality)
+[2Day is Sunday; Love the World 1 Day A Week.](http://www.2breality.com/2brnews2.html)
 
 [2BReality/TV](http://www.2breality.com/tv.html)
 
