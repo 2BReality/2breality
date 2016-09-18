@@ -1,5 +1,7 @@
 2BReality
 =========
+20160918; 11:23 [2BRNews2](http://www.2breality.com/2brnews2.html)
+
 20160916; 20:44 Hello Are you there? yesterday 2 Day: [topdocumentaryfilms.com/the-nazis
 ](http://topdocumentaryfilms.com/the-nazis-a-warning-from-history/)-warning-from-history/
 
