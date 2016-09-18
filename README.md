@@ -1,5 +1,7 @@
 2BReality
 =========
+20160918; 12:57 Let's Play with Reality : [1112223332Day](https://www.google.com/webhp?hl=en&tab=nw#newwindow=1&hl=en&q=2breality)
+
 20160918; 11:23 [2BRNews2](http://www.2breality.com/2brnews2.html), 2 Many Characters for [@Tiwtter](https://twitter.com/) so might as well put it here: [birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow](AM 2BReality birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow, Thank You.)
 
 20160916; 20:44 Hello Are you there? yesterday 2 Day: [topdocumentaryfilms.com/the-nazis
