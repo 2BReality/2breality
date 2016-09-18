@@ -2,6 +2,8 @@
 =========
 Does this Make Reality 2 Day? 
 
+[2Day is Sunday; Love the World 1 Day A Week.](https://twitter.com/2BReality)
+
 [2BReality/TV](http://www.2breality.com/tv.html)
 
 20160918; 1639 est @Snowden Until society realizes the concept of the matter. It is irreverent to humanity for humanity will be no more. So sad 2Bad:(  U could have done so much for the future reality of the World
