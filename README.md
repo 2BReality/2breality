@@ -1,6 +1,6 @@
 2BReality
 =========
-Follow [missionjuno](https://www.missionjuno.swri.edu/) It's Happening Now!
+Follow [missionjuno](https://www.missionjuno.swri.edu/) It's Happening Now! [Juno: Mission to Jupiter 360 Video (Narrated)](https://youtu.be/r5SuUY7dF1w?list=PLTiv_XWHnOZpM1iLQr95P4KDXYiYnJUOE)
 
 Does this Make Reality 2 Day? 
 
