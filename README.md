@@ -1,5 +1,7 @@
 2BReality
 =========
+9/23/2016:1900 [2BReality Status](https://twitter.com/2BReality/status/779454381565542400)
+
 9/22/2016: Follow [missionjuno](https://www.missionjuno.swri.edu/) It's Happening Now! [Juno: Mission to Jupiter 360 Video (Narrated)](https://youtu.be/r5SuUY7dF1w?list=PLTiv_XWHnOZpM1iLQr95P4KDXYiYnJUOE)
 
 Does this Make Reality 2 Day? 
