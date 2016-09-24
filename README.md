@@ -1,6 +1,6 @@
 2BReality
 =========
-[2BRVBook? ![Science News](https://www.youtube.com/user/ScienceNewsSSP)
+[Science News](https://www.youtube.com/user/ScienceNewsSSP)
 
 [Any Response?](https://medium.com/@2BReality/your-suppose-to-bring-the-subject-up-front-26bd033f3c37#.t23ps4u6a)
 
