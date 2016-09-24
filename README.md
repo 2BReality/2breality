@@ -1,6 +1,6 @@
 2BReality
 =========
-http://www.2breality.com/vbook.html
+[2BRVBook? ](http://www.2breality.com/vbook.html)
 
 [Any Response?](https://medium.com/@2BReality/your-suppose-to-bring-the-subject-up-front-26bd033f3c37#.t23ps4u6a)
 
