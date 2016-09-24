@@ -1,6 +1,6 @@
 2BReality
 =========
-Raw: Wildfire Endangers California Military Base [https://youtu.be/Rqarw7htWX4](https://youtu.be/Rqarw7htWX4  ) via @Who? Where Does water stand on the USA Priority List ie; Infrastructure & desalination
+Raw: Wildfire Endangers California Military Base [https://youtu.be/Rqarw7htWX4](https://youtu.be/Rqarw7htWX4  ) via @Who? Where Does water stand on The USA Priority List of issues ie; Infrastructure & desalination, Building a wall in the Desert will not help this issue. So say who?
 
 [Creating User:2BReality](https://commons.wikimedia.org/w/index.php?title=User:2BReality&action=edit&redlink=1)
 
