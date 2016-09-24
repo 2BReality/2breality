@@ -1,5 +1,7 @@
 2BReality
 =========
+[2BNow](https://twitter.com/2BReality/status/779529439558397952)
+
 [Science News](https://www.youtube.com/user/ScienceNewsSSP)
 
 [Any Response?](https://medium.com/@2BReality/your-suppose-to-bring-the-subject-up-front-26bd033f3c37#.t23ps4u6a)
