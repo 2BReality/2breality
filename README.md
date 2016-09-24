@@ -1,6 +1,6 @@
 2BReality
 =========
-[2BRVBook? ](http://www.2breality.com/vbook.html)![Neptune](http://cdn.phys.org/newman/gfx/news/hires/2016/junopeersins.jpg)
+[2BRVBook? ](http://www.2breality.com/vbook.html)![Neptune]May Humanity Play Together for the greater good of All involved, by [2BReality](http://www.2breality.com/) (http://cdn.phys.org/newman/gfx/news/hires/2016/junopeersins.jpg)
 
 [Any Response?](https://medium.com/@2BReality/your-suppose-to-bring-the-subject-up-front-26bd033f3c37#.t23ps4u6a)
 
