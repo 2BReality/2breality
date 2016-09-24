@@ -1,5 +1,7 @@
 2BReality
 =========
+Raw: Wildfire Endangers California Military Base [https://youtu.be/Rqarw7htWX4](https://youtu.be/Rqarw7htWX4  ) via @Who? Where Does water stand on the USA Priority List ie; Infrastructure & desalination
+
 [Creating User:2BReality](https://commons.wikimedia.org/w/index.php?title=User:2BReality&action=edit&redlink=1)
 
 9/23/2016:1900 [2BReality Status](https://twitter.com/2BReality/status/779454381565542400)
