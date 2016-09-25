@@ -1,6 +1,9 @@
 2BReality
 =========
-Twitter Could Have but to many Characters. SoBeIt. @realDonaldTrump @HillaryClinton I hour or Less..... What Are The Priorities for America & the World. PERIOD. Quit wasting the World's Time with the Bullshit. Love the World.
+Is Reality of today Really today; 2Day or is 2Day tomorrow or maybe 2Day is 2 Day. In a New Toyota. Toyota Reality 2Day. Is 2Day 2Morrow 2Day, So Say U
+?
+
+Twitter Could Have but to Many Characters. SoBeIt. @realDonaldTrump @HillaryClinton I hour or Less..... What Are The Priorities for America & the World. PERIOD. Quit wasting the World's Time with the Bullshit. Love the World.
 
 D43? [Who's Reality is this Really?](http://www.cnn.com/2016/09/25/politics/presidential-debate-preview-2016/) CNN? [FOXLive](http://www.fox.com/live) Really! Ect.
 Is it time to put a Fence at the end of the Driveway?
