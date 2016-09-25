@@ -1,5 +1,7 @@
 2BReality
 =========
+Is it time to put a Fence at the end of the Driveway?
+
 [Toyota 2Day](http://www.toyota.com/configurator/#!/build/step/summary/year/2016/series/4runner/model/8668/exteriorcolor/01F7/interiorcolor/LA22/packages/option15/accessories/V4-3P-3T-61-C4-GN): 
 
 [2BNow](https://twitter.com/2BReality/status/779529439558397952)
