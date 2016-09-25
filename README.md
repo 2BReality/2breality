@@ -1,5 +1,7 @@
 2BReality
 =========
+Twitter Could Have but to many Characters. SoBeIt. @realDonaldTrump @HillaryClinton I hour or Less..... What Are The Priorities for America & the World. PERIOD. Quit wasting the World's Time with the Bullshit. Love the World.
+
 D43? [Who's Reality is this Really?](http://www.cnn.com/2016/09/25/politics/presidential-debate-preview-2016/) CNN? [FOXLive](http://www.fox.com/live) Really! Ect.
 Is it time to put a Fence at the end of the Driveway?
 
