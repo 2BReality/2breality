@@ -1,5 +1,6 @@
 2BReality
 =========
+Fun can B Fun [2What?](http://www.2breality.com/tv.html)
 2BReality excepts defeat in front of what? Not 2Morrow!
 
 Is Reality of today Really today; 2Day or is 2Day tomorrow or maybe 2Day is 2 Day. In a New Toyota. Toyota Reality 2Day. Is 2Day 2Morrow 2Day, So Say U
