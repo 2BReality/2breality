@@ -1,9 +1,7 @@
 2BReality
 =========
-The Beginning. This is where it's at: [The Beginning of Reality](https://cash.me/$2BReality).
-
 God Bless,
-[2016 Story American Film Institute ](https://youtu.be/vC_1-MpSPL8)
+[2016 Story American Film Institute ](https://youtu.be/vC_1-MpSPL8)[Good Day 2All](https://youtu.be/bESGLojNYSo)
 
 [Best 4Now:](http://www.spacex.com/) 
 Home [2 Day: 2Morrow.](http://www.2breality.com/)
