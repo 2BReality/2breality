@@ -1,5 +1,9 @@
 2BReality
 =========
+Home?[](<iframe width="560" height="315" src="https://www.youtube.com/embed/vC_1-MpSPL8" frameborder="0" allowfullscreen></iframe>)
+
+[SpaceX](https://youtu.be/IFA6DLT1jBA) + [Mission Juno](https://www.missionjuno.swri.edu/)
+
 Fun can B Fun [2What?](http://www.2breality.com/tv.html)
 2BReality excepts defeat in front of what? Not 2Morrow!
 
@@ -16,8 +20,6 @@ Is it time to put a Fence at the end of the Driveway?
 [2BNow](https://twitter.com/2BReality/status/779529439558397952)
 
 [Any Response?](https://medium.com/@2BReality/your-suppose-to-bring-the-subject-up-front-26bd033f3c37#.t23ps4u6a)
-
-Raw: Wildfire Endangers California Military Base [https://youtu.be/Rqarw7htWX4](https://youtu.be/Rqarw7htWX4  ) via @Who? Where Does water stand on The USA Priority List of issues ie; Infrastructure & desalination, Building a wall in the Desert will not help this issue. So say who?
 
 [Creating User:2BReality](https://commons.wikimedia.org/w/index.php?title=User:2BReality&action=edit&redlink=1)
 
