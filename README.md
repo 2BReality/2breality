@@ -1,6 +1,6 @@
 2BReality
 =========
-The Begining. This is where it's at: [The Begining of Reality](https://cash.me/$2BReality).
+The Beginning. This is where it's at: [The Beginning of Reality](https://cash.me/$2BReality).
 
 God Bless,
 [2016 Story American Film Institute ](https://youtu.be/vC_1-MpSPL8)
