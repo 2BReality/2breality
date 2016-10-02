@@ -1,8 +1,7 @@
 2BReality
 =========
 God Bless,
-
-[[2016 Story American Film Institute ](https://youtu.be/vC_1-MpSPL8)](https://youtu.be/vC_1-MpSPL8)
+[2016 Story American Film Institute ](https://youtu.be/vC_1-MpSPL8)
 
 [Best 4Now:](http://www.spacex.com/) 
 Home [2 Day: 2Morrow.](http://www.2breality.com/)
