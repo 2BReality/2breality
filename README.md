@@ -1,5 +1,7 @@
 2BReality
 =========
+What is a @realDonaldTrump or a @HillaryClinton . Can we figure out what 2BReality Will Be for Humanity with in the next 36 Days, Thank You.
+
 God Bless,
 [2016 Story American Film Institute ](https://youtu.be/vC_1-MpSPL8)[Good Day 2All](https://youtu.be/bESGLojNYSo)
 
