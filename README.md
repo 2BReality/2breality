@@ -1,5 +1,9 @@
 2BReality
 =========
+161004: 2BReality | Facebook
+https://www.facebook.com/2breality
+Linking the world wide web one link at a time, Advertise your Reality Here! ... 2BReality · September 25 at 6:03pm ·. Gotta play 2Day; https://2breality.gitbooks.io/2breality/content/ · Introduction · 2BReality. Is Reality of today Really today; ... [URL:](https://www.google.com/webhp?hl=en&tab=nw#newwindow=1&hl=en&q=2breality) 
+
 I Think 2BReality could put a microphone in your house for less, even a business, what do ya say; Let's make it so.
 
 [Google Home](https://madeby.google.com/home/) 2Day, What Security?
