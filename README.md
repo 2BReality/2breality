@@ -1,5 +1,7 @@
 2BReality
 =========
+I Think 2BReality could put a microphone in your house for less, even a business, what do ya say; Let's make it so.
+
 [Google Home](https://madeby.google.com/home/) 2Day, What Security?
 
 DonaldJTrump.com - Official Campaign Website‎
