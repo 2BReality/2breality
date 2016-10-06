@@ -2,11 +2,11 @@
 # [2BReality](http://www.2breality.com/)
 =========
 
-161006: [2BGit](https://github.com/2BReality/2breality2#2bgit), [Git Basics Episode 1](https://git-scm.com/video/what-is-version-control), [2BRNews](https://www.google.com/search?q=2BRNews.html&oq=2BRNews.html&aqs=chrome..69i57j69i61j69i60l2&sourceid=chrome&ie=UTF-8),
+161006: [2BGit](https://github.com/2BReality/2breality2#2bgit), [Git Basics Episode 1](https://git-scm.com/video/what-is-version-control), [2BRNews](https://www.google.com/search?q=2BRNews.html&oq=2BRNews.html&aqs=chrome..69i57j69i61j69i60l2&sourceid=chrome&ie=UTF-8), [Days till Christmas](http://www.xmasclock.com/),
 
 161004: [2BReality | Facebook](https://www.facebook.com/2BReality/)
 
-Linking the world wide web one link at a time, Advertise your Reality Here! ...  · September 25 at 6:03pm ·. Gotta play 2Day; https://2breality.gitbooks.io/2breality/content/ · Introduction · 2BReality. Is Reality of today Really today; ... [URL:](https://www.google.com/webhp?hl=en&tab=nw#newwindow=1&hl=en&q=2breality) 
+Linking the world wide web one link at a time, Advertise your Reality Here! ...  · September 25 at 6:03pm ·. Gotta play 2Day; https://2breality.gitbooks.io/2breality/content/ · Introduction · . Is Reality of today Really today; ... [URL:](https://www.google.com/webhp?hl=en&tab=nw#newwindow=1&hl=en&q=2breality) 
 
 [Google Home](https://madeby.google.com/home/) 2Day, What Security?
 
@@ -15,7 +15,7 @@ Adsecure.donaldjtrump.com/donate‎
 Donald Trump For President Official Site. Add Your Name. Donate Now.
 Crooked Hillary Official Donate Page Get The Hat Website: [https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#newwindow=1&q=politico.com%2Fwuerker%2F%22trump%22](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#newwindow=1&q=politico.com%2Fwuerker%2F%22trump%22) Why would any normal person give money to a Billionaire? Comments welcome.
 
-What is a @realDonaldTrump or a @HillaryClinton . Can we figure out what 2BReality Will Be for Humanity with in the next 36 Days, Thank You.
+What is a @realDonaldTrump or a @HillaryClinton . Can we figure out what 2BReality Will Be for Humanity with in the next 36 Days, Thank You.  
 
 God Bless,
 [2016 Story American Film Institute ](https://youtu.be/vC_1-MpSPL8)[Good Day 2All](https://youtu.be/bESGLojNYSo)
