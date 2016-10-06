@@ -2,7 +2,7 @@
 # [2BReality](http://www.2breality.com/)
 =========
 
-[Poor infrastructure](http://www.cnbc.com/2016/10/06/train-that-crashed-in-hoboken-was-going-twice-the-speed-limit-investigators-say.html), & Someone wants to build a wall? In the desert. Ba hum bug. Some automatic turrets would do just fine if need be, Hello, 21st Century technology with a few neon signs should save the USA a few billion in taxpayer dollars. 21st Century Reality! And of course there would be audio too.
+[Poor infrastructure](http://www.cnbc.com/2016/10/06/train-that-crashed-in-hoboken-was-going-twice-the-speed-limit-investigators-say.html), & Someone wants to build a wall? In the desert. Ba hum bug. Some automatic turrets would do just fine if need be, Hello, 21st Century technology with a few neon signs should save the USA a few billion in taxpayer dollars. 21st Century Reality! And of course there would be audio & video too.
 
 161006: [2BGit](https://github.com/2BReality/2breality2#2bgit), [Git Basics Episode 1](https://git-scm.com/video/what-is-version-control), [2BRNews](https://www.google.com/search?q=2BRNews.html&oq=2BRNews.html&aqs=chrome..69i57j69i61j69i60l2&sourceid=chrome&ie=UTF-8), [Days till Christmas](http://www.xmasclock.com/),
 
