@@ -13,7 +13,7 @@ Linking the world wide web one link at a time, Advertise your Reality Here! ... 
 DonaldJTrump.com - Official Campaign Website‎
 Adsecure.donaldjtrump.com/donate‎
 Donald Trump For President Official Site. Add Your Name. Donate Now.
-Crooked Hillary Official Donate Page Get The Hat Website: [https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#newwindow=1&q=politico.com%2Fwuerker%2F%22trump%22](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#newwindow=1&q=politico.com%2Fwuerker%2F%22trump%22) Why would any normal person give money to a Billionaire? Comments welcome @2BReality 
+Crooked Hillary Official Donate Page Get The Hat Website: [https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#newwindow=1&q=politico.com%2Fwuerker%2F%22trump%22](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#newwindow=1&q=politico.com%2Fwuerker%2F%22trump%22) Why would any normal person give money to a Billionaire? Comments welcome.
 
 What is a @realDonaldTrump or a @HillaryClinton . Can we figure out what 2BReality Will Be for Humanity with in the next 36 Days, Thank You.
 
