@@ -1,6 +1,9 @@
 
 # [2BReality](http://www.2breality.com/)
-=========
+========
+
+[Y because "WE" Can.](https://2breality.gitbooks.io/2breality/content/)
+
 
 [Poor infrastructure](http://www.cnbc.com/2016/10/06/train-that-crashed-in-hoboken-was-going-twice-the-speed-limit-investigators-say.html), & Someone wants to build a wall? In the desert. Ba hum bug. A few turrets would do just fine if need be, Hello, 21st Century technology with a few neon signs with audio & video too should save the USA a few billion in taxpayer dollars.  21st Century Reality! And of course there would be. Not one specific of the wall. Musk is going to Mars & Trump is building a wall, Yeah Ha. There was a president in the past that had a barb wire fence put up along the same border, who was it?[[ Good Luck East Coast USA.]](http://www.space.com/34322-hurricane-matthew-international-space-station-video.html)
 
