@@ -7,7 +7,9 @@
 [Y because "WE" Can.](https://2breality.gitbooks.io/2breality/content/)
 
 
-[Poor infrastructure](http://www.cnbc.com/2016/10/06/train-that-crashed-in-hoboken-was-going-twice-the-speed-limit-investigators-say.html), & Someone wants to build a wall? In the desert. Ba hum bug. A few turrets would do just fine if need be, Hello, 21st Century technology with a few neon signs with audio & video too should save the USA a few billion in taxpayer dollars.  21st Century Reality! And of course there would be. Not one specific of the wall. ###[Musk is going to Mars](http://www.krmg.com/videos/news/the-plan-to-colonize-mars/vDrHnz/) & Trump is building a wall, Yeah Ha. There was a president in the past that had a barb wire fence put up along the same border, who was it?[[ Good Luck East Coast USA.]](http://www.space.com/34322-hurricane-matthew-international-space-station-video.html)
+[Poor infrastructure](http://www.cnbc.com/2016/10/06/train-that-crashed-in-hoboken-was-going-twice-the-speed-limit-investigators-say.html), & Someone wants to build a wall? In the desert. Ba hum bug. A few turrets would do just fine if need be, Hello, 21st Century technology with a few neon signs with audio & video too should save the USA a few billion in taxpayer dollars.  21st Century Reality! And of course there would be. Not one specific of the wall. 
+
+### # [Musk is going to Mars](http://www.krmg.com/videos/news/the-plan-to-colonize-mars/vDrHnz/) & Trump is building a wall, Yeah Ha. There was a president in the past that had a barb wire fence put up along the same border, who was it?[[ Good Luck East Coast USA.]](http://www.space.com/34322-hurricane-matthew-international-space-station-video.html)
 
 161006: [2BGit](https://github.com/2BReality/2breality2#2bgit), [Git Basics Episode 1](https://git-scm.com/video/what-is-version-control), [2BRNews](https://www.google.com/search?q=2BRNews.html&oq=2BRNews.html&aqs=chrome..69i57j69i61j69i60l2&sourceid=chrome&ie=UTF-8), [Days till Christmas](http://www.xmasclock.com/),
 
