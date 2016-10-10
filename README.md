@@ -3,7 +3,6 @@
 =======
 [America Has Talent ](http://www.2breality.com/2bgit.html)
 
-```<iframe src="https://player.vimeo.com/video/41381741" width="640" height="360" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe>```
 
 ## 161008: 30 Days till we vote for the World.[VIDEO - Donald Trump Caught on Hot Mic Bragging About Sexual Exploits - ‘ Grab em by the Pussy ’](https://youtu.be/24ofBPMC1h8)
 [Donald-Trump-Women-Vulgar](http://www.cnn.com/2016/10/07/politics/donald-trump-women-vulgar/)  &  [Donald_Trump_Family_History](http://www.2breality.com/donald_trump_family_history.html) 
