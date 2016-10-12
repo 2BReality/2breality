@@ -1,5 +1,5 @@
 # [2BReality](http://www.2breality.com/)
-# [Cash.Me/$2BReality](https://cash.me/$2BReality)
+# [Cash.Me/$2BReality](https://cash.me/$2BReality) [2DAY](http://www.2breality.com/USA2Day.html)
 ##_____________________[Tomorrow Tomorrow](https://youtu.be/Yop62wQH498)
 ## 26 Days till we vote for the World.
 
