@@ -1,13 +1,14 @@
 
 # [2BReality](http://www.2breality.com/)
 =======
-[America Has Talent ](http://www.2breality.com/2bgit.html)
+[Cash.Me/$2BReality](https://cash.me/$2BReality) [Tomorrow Tomorrow](https://youtu.be/Yop62wQH498)
 
-## 26 Days till we vote for the World.[VIDEO - Donald Trump Caught on Hot Mic Bragging About Sexual Exploits - ‘ Grab em by the Pussy ’](https://youtu.be/24ofBPMC1h8)
+## 26 Days till we vote for the World.
+
+[VIDEO - Donald Trump Caught on Hot Mic Bragging About Sexual Exploits - ‘ Grab em by the Pussy ’](https://youtu.be/24ofBPMC1h8)
 [Donald-Trump-Women-Vulgar](http://www.cnn.com/2016/10/07/politics/donald-trump-women-vulgar/)  &  [Donald_Trump_Family_History](http://www.2breality.com/donald_trump_family_history.html) 
 
 [Y because "WE" Can.](https://2breality.gitbooks.io/2breality/content/)
-
 
 [Poor infrastructure](http://www.cnbc.com/2016/10/06/train-that-crashed-in-hoboken-was-going-twice-the-speed-limit-investigators-say.html), & Someone wants to build a wall? In the desert. Ba hum bug. A few turrets would do just fine if need be, Hello, 21st Century technology with a few neon signs with audio & video too should save the USA a few billion in taxpayer dollars.  21st Century Reality! Not one specific of the wall. 
 
