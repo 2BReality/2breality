@@ -1,6 +1,6 @@
 # [2BReality](http://www.2breality.com/)
 # [2BReality20160911.](http://www.2breality.com/2breality20160911.html) 
-### Live?
+### Live? 2Morrow will be.
 ##_____________________[Tomorrow Tomorrow](https://youtu.be/Yop62wQH498)
  [Pay 2BReality — Square Cash
  Instantly send money between friends or accept card payments for your business. Money deposits directly to your bank account.](https://cash.me/$2BReality) ## 26 Days till we vote for the World.
