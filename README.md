@@ -1,5 +1,6 @@
 # [2BReality](http://www.2breality.com/)
 # [2BReality20160911.](http://www.2breality.com/2breality20160911.html) 
+What was Donald's last really good week? Really because the World hasn't a clue, with the garbage he is pushing. Hump the Dog & spread it out sideway, Go @HillaryClinton What was Donald's last really good week? Really because the World hasn't a clue, with the garbage he is pushing. Hump the Dog & spread it out sideway, Go @HillaryClinton 
 ### Live? 2Morrow will be.
 ##_____________________[Tomorrow Tomorrow](https://youtu.be/Yop62wQH498)
  [Pay 2BReality — Square Cash
