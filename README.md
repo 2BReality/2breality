@@ -1,6 +1,9 @@
 # [2BReality](http://www.2breality.com/)
 # [Cash.Me/$2BReality](https://cash.me/$2BReality) [2DAY](http://www.2breality.com/USA2Day.html)
 ##_____________________[Tomorrow Tomorrow](https://youtu.be/Yop62wQH498)
+[Pay 2BReality — Square Cash
+Instantly send money between friends or accept card payments for your business. Money deposits directly to your bank account.](https://cash.me/$2BReality)
+
 ## 26 Days till we vote for the World.
 
 [VIDEO - Donald Trump Caught on Hot Mic Bragging About Sexual Exploits - ‘ Grab em by the Pussy ’](https://youtu.be/24ofBPMC1h8)
