@@ -15,6 +15,7 @@ Instantly send money between friends or accept card payments for your business. 
 
 ### # [Musk is going to Mars](http://www.krmg.com/videos/news/the-plan-to-colonize-mars/vDrHnz/) & Trump is building a wall, Yeah Ha. There was a president in the past that had a barb wire fence put up along the same border, who was it?  Was it? MR.[Theodore Roosevelt](https://en.wikipedia.org/wiki/Rough_Riders) 
 
+
 [[ Good Luck East Coast USA.]](http://www.space.com/34322-hurricane-matthew-international-space-station-video.html)
 
 161006: [2BGit](https://github.com/2BReality/2breality2#2bgit), [Git Basics Episode 1](https://git-scm.com/video/what-is-version-control), [2BRNews](https://www.google.com/search?q=2BRNews.html&oq=2BRNews.html&aqs=chrome..69i57j69i61j69i60l2&sourceid=chrome&ie=UTF-8), [Days till Christmas](http://www.xmasclock.com/),
