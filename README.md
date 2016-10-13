@@ -1,4 +1,6 @@
 # [2BReality](http://www.2breality.com/)
+I know it was sad 2 say, But Trump didn't know either, should this B R Next President? Should Hillary Clinton> They both suck. America needs to Vote for who will keep R Kids ALive, God Bless the USA
+
 # [2BReality20160911.](http://www.2breality.com/2breality20160911.html) 
 What was Donald's last really good week? Really because the World hasn't a clue, with the garbage he is pushing. Hump the Dog & spread it out sideway, Go @HillaryClinton What was Donald's last really good week? Really because the World hasn't a clue, with the garbage he is pushing. Hump the Dog & spread it out sideway, Go @HillaryClinton 
 ### Live? 2Morrow will be.
