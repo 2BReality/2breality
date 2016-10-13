@@ -1,4 +1,6 @@
 # [2BReality](http://www.2breality.com/)
+
+A Lot 2 Say little 2  Produce, I Wonder Y? 
 [How do U do This? 4Reality could be now, U Idiot](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=.2breality) 
 
 Give Me Something Real, for I Have Nothing, I Don't steal. 2Breality.com 
