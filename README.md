@@ -1,4 +1,7 @@
 # [2BReality](http://www.2breality.com/)
+Give Me Something Real, for I Have Nothing, I Don't steal. 2Breality.com 
+If This is Reality; Count meout, U Really Do; 
+
  [2B2Day](http://2breality2.com/) 2Day, 2Day
  I know it was sad 2 say, But Trump didn't know either, should this B R Next President? Should Hillary Clinton> They both suck. America needs to Vote for who will keep R Kids ALive, God Bless the USA
 
