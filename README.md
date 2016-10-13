@@ -1,4 +1,6 @@
 # [2BReality](http://www.2breality.com/)
+[How do U do This? 4Reality could be now, U Idiot](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=.2breality) 
+
 Give Me Something Real, for I Have Nothing, I Don't steal. 2Breality.com 
 If This is Reality; Count meout, U Really Do; 
 
