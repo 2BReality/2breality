@@ -6,6 +6,7 @@ Reply
  2BReality 
 2BReality1 hour ago
 If you pump water up is there energy to be had when the water goes down?﻿
+
 [2016 USA LOVE](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=.2breality)
 A Lot 2 Say little 2  Produce, I Wonder Y? 
 [How do U do This? 4Reality could be now, U Idiot](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=.2breality) 
