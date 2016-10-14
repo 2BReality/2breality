@@ -1,7 +1,7 @@
 # [2BReality](http://www.2breality.com/)
  ## 24 Days till we vote for the World.
  2BReality 1 hour ago
-[Desalination could help with the 6 feet higher oceans, by putting it where we need it, by helping the Environment & humanity in many many ways.﻿](https://youtu.be/BikQFWNYct4)
+[Desalination could help with the 6 feet higher oceans, by putting it where we need it, by helping the Environment & humanity in many many ways.](https://youtu.be/BikQFWNYct4)
  If you pump water up is there energy to be had when the water goes down?
 
 [2016 USA LOVE](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=.2breality)
