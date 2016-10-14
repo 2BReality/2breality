@@ -1,4 +1,5 @@
 # [2BReality](http://www.2breality.com/)
+ ## 24 Days till we vote for the World.
 [2016 USA LOVE](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=.2breality)
 A Lot 2 Say little 2  Produce, I Wonder Y? 
 [How do U do This? 4Reality could be now, U Idiot](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=.2breality) 
@@ -15,7 +16,6 @@ What was Donald's last really good week? Really because the World hasn't a clue,
 ##_____________________[Tomorrow Tomorrow](https://youtu.be/Yop62wQH498)
  [Pay 2BReality — Square Cash
  Instantly send money between friends or accept card payments for your business. Money deposits directly to your bank account.](https://cash.me/$2BReality)
- ## 26 Days till we vote for the World.
 ### [Is this the Rough Riders of the Year Two Thousand Sixteen](https://youtu.be/0nDCVfnYBhk)? [4POTUS](https://twitter.com/hashtag/4potus)
 
 [VIDEO - Donald Trump Caught on Hot Mic Bragging About Sexual Exploits - ‘ Grab em by the Pussy ’](https://youtu.be/24ofBPMC1h8)
