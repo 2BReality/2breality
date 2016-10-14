@@ -3,7 +3,7 @@
  2BReality 1 hour ago
 [Desalination could help with the 6 feet higher oceans, by putting it where we need it, by helping the Environment & humanity in many many ways.](https://youtu.be/BikQFWNYct4) When will water be on the commodity Exchange? 
  If you pump water up is there energy to be had when the water goes down?
-Please imagine [Lake Mead](https://en.wikipedia.org/wiki/Lake_Mead) at capacity. ![](average-elevation.jpg)
+Please imagine [Lake Mead](https://en.wikipedia.org/wiki/Lake_Mead) at capacity. ![](lake Mead 2Day.png)
 Water Power is the Way to Go!
 [2016 USA LOVE](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=.2breality)
  A Lot 2 Say little 2  Produce, I Wonder Y? 
