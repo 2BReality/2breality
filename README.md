@@ -5,6 +5,7 @@
  If you pump water up is there energy to be had when the water goes down?
 Please imagine [Lake Mead](https://en.wikipedia.org/wiki/Lake_Mead) at capacity. ![](lake Mead 2Day.png)
 Water Power is the Way to Go!
+
 [2016 USA LOVE](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=.2breality)
  A Lot 2 Say little 2  Produce, I Wonder Y? 
 [How do U do This? 4Reality could be now, U Idiot](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=.2breality) 
