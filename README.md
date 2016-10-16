@@ -5,7 +5,7 @@
 [Technology & Market Discovery](https://ipo.llnl.gov/technologies/technology-market-discovery)
  Don't be a ["gh-ost"](https://www.google.com/search?q=gh-ost&oq=gh-ost&aqs=chrome..69i57j69i60&sourceid=chrome&ie=UTF-8#newwindow=1&tbm=vid&q=%22gh-ost%22+code) code, Help save the world 2 Day & 2Morrow.
  
- [WikiLeaks Seems to be Like Dumpster Diving](https://twitter.com/2BReality/status/787703677943414785).
+ [WikiLeaks Seems to be Like Dumpster Diving](https://twitter.com/2BReality/status/787703677943414785). You Shouldn't
  
 [The process of Water desalination](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#newwindow=1&q=The+process+of+Water+desalination): [could help with the 6 feet higher oceans, by putting it where we need it, by helping the Environment & humanity in many many ways.](https://youtu.be/BikQFWNYct4) When will [water be on the commodity Exchange?](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=water+be+on+the+commodity+Exchange%3F) 
  If you pump water up is there energy to be had when the water goes down?
