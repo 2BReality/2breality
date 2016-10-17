@@ -3,7 +3,7 @@
  Let's create the Worlds Reality; Together where reality meets the road. 
 [GitHub Universe 2016](https://www.youtube.com/watch?v=Uflvf8l0NLY&feature=youtu.be&list=PL0lo9MOBetEEUcOiXSL0XMRZKfAWlZ3Cb).  
 [Technology & Market Discovery](https://ipo.llnl.gov/technologies/technology-market-discovery)
- Don't be a ["gh-ost"](https://www.google.com/search?q=gh-ost&oq=gh-ost&aqs=chrome..69i57j69i60&sourceid=chrome&ie=UTF-8#newwindow=1&tbm=vid&q=%22gh-ost%22+code) code, Help save the world 2 Day & 2Morrow.
+ Don't be a ["gh-ost"](https://www.google.com/search?q=gh-ost&oq=gh-ost&aqs=chrome..69i57j69i60&sourceid=chrome&ie=UTF-8#newwindow=1&tbm=vid&q=%22gh-ost%22+code) code, Help save the world 2 Day & 2Morrow. **[I Like the center button](http://www.2breality.com/My%20Dear%20Deer%202.JPG)**
  
 [WikiLeaks](https://wikileaks.org/), [Seems to be Like Dumpster Diving](https://twitter.com/2BReality/status/787703677943414785). You Shouldn't.
  
