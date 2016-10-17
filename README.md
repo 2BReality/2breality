@@ -1,6 +1,6 @@
 # [2BReality](http://www.2breality.com/)
  ## 21 Days till we vote for the World.
- Let's create the Worlds Reality; Together where reality meets the road. 
+ Let's create the Worlds Reality; Together where reality meets the road. If you are reading this than we are doing [Code Review](https://en.wikipedia.org/wiki/Code_review). Can "We" help make 2Morrow, 2Morrow better 2Gether?  
 [GitHub Universe 2016](https://www.youtube.com/watch?v=Uflvf8l0NLY&feature=youtu.be&list=PL0lo9MOBetEEUcOiXSL0XMRZKfAWlZ3Cb).  
 [Technology & Market Discovery](https://ipo.llnl.gov/technologies/technology-market-discovery)
  Don't be a ["gh-ost"](https://www.google.com/search?q=gh-ost&oq=gh-ost&aqs=chrome..69i57j69i60&sourceid=chrome&ie=UTF-8#newwindow=1&tbm=vid&q=%22gh-ost%22+code) code, Help save the world 2 Day & 2Morrow. **[I Like the center button](http://www.2breality.com/My%20Dear%20Deer%202.JPG)****[2BNews2Day](https://images.google.com/imgres?imgurl=http%3A%2F%2Fwww.2breality.com%2FImages%2FButtons%2Flgben.jpg&imgrefurl=http%3A%2F%2Fwww.2breality.com%2F2BNews.aspx&docid=8u3Yx6gwCo-JlM&tbnid=ko4vgANJUnftMM%3A&w=180&h=217&source=sh%2Fx%2Fim)**
