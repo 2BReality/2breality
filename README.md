@@ -1,6 +1,7 @@
 # [2BReality](http://www.2breality.com/)
 [The Obamas, Biden tear into Donald Trump on Trial, #Election #POTUS #FLOTUS](https://youtu.be/R4QKvFZ9Jf4)
-
+```<blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Twitter is Cool 2 What Extent, Thank You. <a href="https://t.co/0KVkmZt3kh">https://t.co/0KVkmZt3kh</a></p>&mdash; 2BReality.com (@2BReality) <a href="https://twitter.com/2BReality/status/789671176687804416">October 22, 2016</a></blockquote>
+<script async src="//platform.twitter.com/widgets.js" charset="utf-8"></script>```
  ## 17 Days till we vote for the World.
  Is This Really [Reality of the World 2Day](https://news.google.com/nwshp?hl=en&tab=wn). [The World 2gether](https://www.google.com/search?q=2BReality+21+Days+till+we+vote+for+the+World.&oq=2BReality++21+Days+till+we+vote+for+the+World.&aqs=chrome..69i57j69i64&sourceid=chrome&ie=UTF-8).  [The World Needs a Novel on this one 2016 Election](http://www.nbcnews.com/news/us-news/billy-bush-leaving-today-show-effective-immediately-n667936) 2Day.
  Let's create the Worlds Reality; [2Day2GethersoBeIt](https://www.youtube.com/watch?v=Nz8atO-7aWA). [Will Flip4U:)](https://www.elance.com/samples/boston-2day-2breality-boston/127985550/#posSlide)  Together where reality meets the road. If you are reading this than we are doing [Code Review](https://en.wikipedia.org/wiki/Code_review). Can "We" help make 2Morrow, 2Morrow better 2Gether? 2Throw out is 2Not Have.  
