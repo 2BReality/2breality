@@ -95,6 +95,6 @@ Shall we drink Prune Juice or eat Pizza: The world need to decide: [@2BReality](
 
 [2BRNews](http://www.2breality.com/2brnews.html)
 
- 
+ Special is as special does
 
 
