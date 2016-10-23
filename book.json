@@ -2,5 +2,10 @@
     "plugins": [
         "ad"
     ],
-    "pluginsConfig": {}
+    "pluginsConfig": {
+        "ad": {
+            "contentTop": "",
+            "contentBottom": "false"
+        }
+    }
 }
