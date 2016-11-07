@@ -1,4 +1,7 @@
 # [2BReality](http://www.2breality.com/)
+
+## [SNL](<iframe width="560" height="315" src="https://www.youtube.com/embed/hxH6bKNPBIA" frameborder="0" allowfullscreen></iframe>)
+
 [The Obamas, Biden tear into Donald Trump on Trial, #Election #POTUS #FLOTUS](https://youtu.be/R4QKvFZ9Jf4)
  ## 1 Days till we vote for the World.
  Is This Really [Reality of the World 2Day](https://news.google.com/nwshp?hl=en&tab=wn). [The World 2gether](https://www.google.com/search?q=2BReality+21+Days+till+we+vote+for+the+World.&oq=2BReality++21+Days+till+we+vote+for+the+World.&aqs=chrome..69i57j69i64&sourceid=chrome&ie=UTF-8).  [The World Needs a Novel on this one 2016 Election](http://www.nbcnews.com/news/us-news/billy-bush-leaving-today-show-effective-immediately-n667936) 2Day.
