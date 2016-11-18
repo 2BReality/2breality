@@ -1,5 +1,5 @@
 # [2BReality](http://www.2breality.com/)
-Stephen Hawking just gave humanity a due date for finding another planet [http://wpo.st/xY6F2](http://wpo.st/xY6F2) The Question is who can afford it for Humanity.
+11/16/2016: Stephen Hawking just gave humanity a due date for finding another planet [http://wpo.st/xY6F2](http://wpo.st/xY6F2) The Question is who can afford it for Humanity.
 ## [SNL](<iframe width="560" height="315" src="https://www.youtube.com/embed/hxH6bKNPBIA" frameborder="0" allowfullscreen></iframe>)-1
 
 [The Obamas, Biden tear into Donald Trump on Trial, #Election #POTUS #FLOTUS](https://youtu.be/R4QKvFZ9Jf4)
