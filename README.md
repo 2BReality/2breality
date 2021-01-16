@@ -1,4 +1,4 @@
-The World Year 2021. USA The Worst President Donald J. Trump. How Many Died On His Watch? May He Be Held Accountable For The Needless Dead. May Donald J. Trump & Family Go Crawl Under a Rock..
+The World Year 2021. USA The Worst President Donald J. Trump. How Many Died On His Watch? May He Be Held Accountable For The Needless Dead. May Donald J. Trump & Family Go Crawl Under a Rock.
 
 2BWho Let The Dog Out 25 NOV 2019. https://www.2breality.com/2BWho%20Let%20The%20Dog%20Out.html
 ---
