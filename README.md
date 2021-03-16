@@ -5,8 +5,7 @@
 [Y because "WE" Can.](https://2breality.gitbooks.io/2breality/content/)
 
 Home [2 Day: 2Morrow.](http://www.2breality.com/)  
-[[Home?](http://www.2breality.com/)](iframe width="560" height="315" src="https://www.youtube.com/embed/vC_1-MpSPL8" frameborder="0" allowfullscreen></iframe)  
-[SpaceX](https://youtu.be/IFA6DLT1jBA) + [Mission Juno](https://www.missionjuno.swri.edu/)  
+[[Home?](http://www.2breality.com/)]
 Fun can B Fun [2What?](http://www.2breality.com/tv.html)  
 2BReality excepts defeat in front of what? Not 2Morrow!  
 [2BNow](https://twitter.com/2BReality/status/779529439558397952)  
